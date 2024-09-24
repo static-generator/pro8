@@ -9,6 +9,6 @@
 - [Tiktok](https://www.tiktok.com)
 ---
 My Interests:
-> - Art
-> - Futsal
-> - Video Games
+1. Art
+2. Futsal
+3. Video Games
