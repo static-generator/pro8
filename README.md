@@ -1,3 +1,2 @@
 #  Pro
-## Kristina Adria D. Bernardez
-## CN 8
+## Kristina Adria D. Bernardez        CN 8
