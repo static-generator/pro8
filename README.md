@@ -6,7 +6,6 @@
 **Accounts:**
 - [Facebook](https://www.facebook.com)
 - [Instagram](https://www.instagram.com)
-- [Tiktok](https://www.tiktok.com)
 ---
 My Interests:
 1. Art
